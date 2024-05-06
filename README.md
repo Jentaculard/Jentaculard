@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jentaculard
+- 👀 I’m interested in IOS app
+- 🌱 I’m currently learning Swift
+- 📫 How to reach me @Jentaculard915 twitter
+- 😄 Pronouns: ...
